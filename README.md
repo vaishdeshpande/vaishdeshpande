@@ -14,7 +14,7 @@
 
 - 🌱 I’m currently learning Cloud Development and devops concepts
 
-- 📫 How to reach me **vaishnavi.deshpande2105@gmail.com**
+- 📫 How to reach me **deshpandevaishnavi457@gmail.com**
 
 - ⚡ Fun fact :- Food and Music🎵 are the reasons to live.
 
